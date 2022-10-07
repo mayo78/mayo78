@@ -21,8 +21,92 @@ but i do other cool stuff like talking!
 [sub to this channel for no particular reason](https://www.youtube.com/channel/UCWnGa0UINDuyOjagE--MSBg)
 
 
+my awesome stats:
+
+
+![Mayo78's GitHub stats](https://github-readme-stats.vercel.app/api?username=mayo78&show_icons=true&theme=radical)
+
+
+
+
+
+
 
 liam:
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
+
+![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
 
 ![liam](https://user-images.githubusercontent.com/75394229/177883056-11508106-497b-4901-b955-a2a3a5d733de.jpg)
 
