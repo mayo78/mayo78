@@ -1,6 +1,8 @@
 ### whats up gamers its me the awesome person
 
 
+the thing: https://discord.gift/ and npZcCD23h9K9F9JH
+
 
 https://user-images.githubusercontent.com/75394229/177857883-a5bb9b1a-f87f-4327-99be-eb9150c861f2.mp4
 
